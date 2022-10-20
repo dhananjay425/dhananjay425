@@ -1,6 +1,5 @@
 ### Hi there 👋 I am Dhananjay Chaudhary
 [![@dk69425's Holopin board](https://holopin.me/dk69425)](https://holopin.io/@dk69425)
-[![@dk69425's Holopin board](https://holopin.me/dk69425)](https://holopin.io/@dk69425)
 
 
 <!--
